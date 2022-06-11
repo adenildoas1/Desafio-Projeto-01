@@ -73,3 +73,8 @@
 | 5. Junte o fermento e as claras em neve e misture delicadamente até que tudo se incorpore; |                                                              |
 | 6. Transfira a massa para uma forma untada e leve-a para assar em forno pré-aquecido a 180º graus por cerca de 35 minutos. |                                                              |
 
+
+
+## Referência
+
+[Vanessa Herrmann](https://www.receiteria.com.br/receitas-de-bolo-fofinho/#01) . **45 receitas de bolo fofinho tão gostosas que vão aquecer seu coração**. Acessado em: 11.06.2022
